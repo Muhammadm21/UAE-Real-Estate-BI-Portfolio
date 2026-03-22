@@ -87,4 +87,4 @@ UAE-Real-Estate-BI-Portfolio/
 
 Information Systems student specializing in Business Intelligence. Interested in BI analyst roles across the Gulf region.
 
-Connect with me on [  https://www.linkedin.com/in/mohammad-mohammad-0547283b1/  ](LinkedIn) ← paste your LinkedIn URL here
+Connect with me (LinkedIn) on https://www.linkedin.com/in/mohammad-mohammad-0547283b1/   
